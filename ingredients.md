@@ -1,4 +1,4 @@
-# Ingredients
+# Lots of Great Ingredients for Guacamole
 
 - 2 avocados
 - 1 lime
