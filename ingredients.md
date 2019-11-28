@@ -1,4 +1,4 @@
-# Ingredients
+# Ingredients List
 
 - 2 avocados
 - 1 lime
